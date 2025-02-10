@@ -1,1 +1,1 @@
-Hi, I'm Bo Ma. Please feel free to reach out to me with any questions at wavelet@cebbank.com.
+Some information about me can be found here https://www.cfrisk.org/expert/48/detail， My email: wavelet@cebbank.com.
